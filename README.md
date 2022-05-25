@@ -4,4 +4,4 @@ I work as a marketing analyst in the past 1 year for an amazon DSP advertising a
 
 In spare time, I'm a heavy reader, and I love oil painting and piano ~ 
 
-Fun fact: I love love love children books 😄, especially with some interactive book design. Peter Pan is my current obession! 🧚‍♀️🏴‍☠️🌟🐊⏲
+Fun fact: I love love love children's books 😄, especially with some interactive book design. Peter Pan is my current obession! 🧚‍♀️🏴‍☠️🌟🐊⏲
