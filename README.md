@@ -18,4 +18,4 @@ Software Proficiency:
 
 
 
-Fun fact: I love love love children's books 😄, especially with some interactive book design. Peter Pan is my current obession! 🧚‍♀️🏴‍☠️🌟🐊⏲
+Fun fact: I love love love children's books 😄, especially with some interactive book design. Peter Pan is my current obsession! 🧚‍♀️🏴‍☠️🌟🐊⏲
